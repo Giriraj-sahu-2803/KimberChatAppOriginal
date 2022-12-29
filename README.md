@@ -1,2 +1,1 @@
-# Giriraj Sahu
 
